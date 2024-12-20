@@ -1,4 +1,4 @@
-Kuwait How  presents digital articles that are the result of the experience of experts in the field of blogging in the Kuwaiti field in its various sections. For this reason, the site is considered a comprehensive and comprehensive guide.
+<a href="https://kuwaithow.com/" rel="nofollow">Kuwait How</a>  presents digital articles that are the result of the experience of experts in the field of blogging in the Kuwaiti field in its various sections. For this reason, the site is considered a comprehensive and comprehensive guide.
 
 Kuwait How sections
 
